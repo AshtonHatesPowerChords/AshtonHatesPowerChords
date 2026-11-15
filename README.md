@@ -2,6 +2,8 @@ I am Ashton or something
 check out  my strawpage BYI:
 https://happyjusttodancewithyou.straw.page
 
+ADULTS CAN INTERACT AS LONG AS U DON'T HAVE WEIRD INTENT AND AREN'T OVER 35+, I am friends with multiple adults and couldn't care less that they're over 18. I myself am a minor but don't get in my business just cause I'm friends with people who aren't minors.
+
 PONYTOWN GITHUB!!
 
 (my socials: Tiktok: Rockyandgracetosspace, Discord: Rockyngracetospace, youtube: Ashtonhatespowerchords (i think)
