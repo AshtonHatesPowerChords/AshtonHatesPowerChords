@@ -4,6 +4,46 @@ https://happyjusttodancewithyou.straw.page/, https://thebeatlez.atabook.org/
 
 DNI "Isn't John/Paul/George/Ringo (bad thing)" ex; "isn't john racist?" yes, i'm aware that doesn't mean i condone and support their actions, BUT. if you ask this I'll assume it's ragebait and block you. DNI.
 
+BYI:
+I'm a piece of shit who doesn't even realize what he's saying half of the time.
+I am not able to generate the empathy and sympathy I should feel so I will be rude
+I'm also rude to show affection but it's very easy to tell which is just me playing around and which is me actually being a prick
+
+Interact:
+Share Interests
+Beatles fans
+(DNI Verkon Supporters)
+Lennstarr or Lennison fans
+Shows affection by being rude
+Jeremiah (Ily bro)
+Enjoy reading or music (me too me too)
+
+DNI:
+Racists, Abliests, Homophobes, Transphobes, pedos, zoos, ai supporters, magas.
+If u support anything above
+Verkon Supporters
+Ppl who start unneccessary drama
+Ppl who support the Beatles's bad actions.
+Overly sensitive to an annoying point.
+TCOAL fans
+That kid named Mason from my school
+MSI fans
+Hazbin or Helluva fans
+Dark and pro shippers
+
+INTWC:
+Mclennon and Starrison fans
+(Yes I know we're in the same boat idc)
+MCR fans
+Hetalia fans
+Southpark fans
+DNI: Matt Sharp supporters
+INTWC:
+New tally hall fans
+Tallyshippers
+RPF haters/ppl who harass u if u even are slightly a fan of RPF
+If u go 2 my school and aren't my friend (irl)
+
 I am Ashton or something
 
 ADULTS CAN INTERACT AS LONG AS U DON'T HAVE WEIRD INTENT AND AREN'T OVER 35+, I am friends with multiple adults and couldn't care less that they're over 18. I myself am a minor but don't get in my business just cause I'm friends with people who aren't minors.
