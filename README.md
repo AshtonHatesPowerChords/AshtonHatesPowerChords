@@ -4,6 +4,8 @@ https://happyjusttodancewithyou.straw.page
 
 ADULTS CAN INTERACT AS LONG AS U DON'T HAVE WEIRD INTENT AND AREN'T OVER 35+, I am friends with multiple adults and couldn't care less that they're over 18. I myself am a minor but don't get in my business just cause I'm friends with people who aren't minors.
 
+Quick note: I'm Aro ace/Aromantic and Asexual but I can (jokingly) flirt with ppl and be kinda weird but usually I say that stuff about myself. I have made discord alt accounts to flirt with myself before...
+
 PONYTOWN GITHUB!!
 
 (my socials: Tiktok: Rockyandgracetosspace, Discord: Rockyngracetospace, youtube: Ashtonhatespowerchords (i think)
