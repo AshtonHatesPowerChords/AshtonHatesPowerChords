@@ -8,6 +8,8 @@ Quick note: I'm Aro ace/Aromantic and Asexual but I can (jokingly) flirt with pp
 
 PONYTOWN GITHUB!!
 
+I am often offtab as I have ADHD-C and usually am not speaking to anyone who provides dopamine to my brain (as my friends are usually offline) so if I don't respond right away that's (usually) why
+
 (my socials: Tiktok: Rockyandgracetosspace, Discord: Rockyngracetospace, youtube: Ashtonhatespowerchords (i think)
 
 !!!! I will usually only go up to you if you have a Beatles pony equiped! I will usually only interact with beatles fans or my friends (who are usually beatles fans) !!!!
