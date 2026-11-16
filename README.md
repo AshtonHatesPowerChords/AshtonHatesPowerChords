@@ -31,7 +31,7 @@ TCOAL fans
 That kid named Mason from my school
 MSI fans
 Hazbin or Helluva fans
-Dark and pro shippers<sub/>
+Dark and pro shippers (there are exceptions!!) <sub/>
 
 <sub>INTWC:
 Mclennon and Starrison fans
