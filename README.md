@@ -2,7 +2,7 @@
 
 <sub>PLEASE CHECK OUT MY STRAWPAGE AND ATA, Sign my ATA please:<sub/>
 
-<Sub> please ask to take inspo, you don't need to ask to take inspo but PLEASE do not copy. <Sub/>
+<Sub> please ask to take inspo, you don't need to ask to take VERY light inspo but PLEASE do not copy. <Sub/>
 
 <sub>https://happyjusttodancewithyou.straw.page/, https://thebeatlez.atabook.org/<sub/>
 
