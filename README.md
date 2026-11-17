@@ -2,6 +2,8 @@
 
 <sub>PLEASE CHECK OUT MY STRAWPAGE AND ATA, Sign my ATA please:<sub/>
 
+<Sub> please ask to take inspo, you don't need to ask to take inspo but PLEASE do not copy. <Sub/>
+
 <sub>https://happyjusttodancewithyou.straw.page/, https://thebeatlez.atabook.org/<sub/>
 
 <sub>DNI "Isn't John/Paul/George/Ringo (bad thing)" ex; "isn't john racist?" yes, i'm aware that doesn't mean i condone and support their actions, BUT. if you ask this I'll assume it's ragebait and block you. DNI.<sub>
