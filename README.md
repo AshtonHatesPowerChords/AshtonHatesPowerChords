@@ -7,4 +7,4 @@
 
 <sub>https://happyjusttodancewithyou.straw.page/, https://thebeatlez.atabook.org/<sub/>
 
-![image alt](https://github.com/AshtonHatesPowerChords/AshtonHatesPowerChords/blob/260c6a92e2ae189cf77ff5c99fc5214c6745d789/crackmeimeanwhat.jpg)
+![image alt](https://github.com/AshtonHatesPowerChords/AshtonHatesPowerChords/blob/dfaf28c1964d3401ac173fc7a1f48b30fcaa70f4/drooooolll.jpg)
